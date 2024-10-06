@@ -9,7 +9,7 @@ _I would love to explain the whole project but it's too risky, so if you think y
 Contact info:
 discord: groshl#4745
 email: groselj17@gmail.com
-ig: luka.groselj17
+ig: groselj17
 
   ---
 **PLANS FOR THE FUTURE OF THIS PROJECT**
